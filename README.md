@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning software engineering
 - 💞️ I’m looking to collaborate with peers,friends with the goal to achieve success
 - 📫 How to reach me +2349019772555
+- thank u all.
 
 <!---
 Chrislove1/Chrislove1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
