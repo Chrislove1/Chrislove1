@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning software engineering
 - 💞️ I’m looking to collaborate with peers,friends with the goal to achieve success
 - 📫 How to reach me +2349019772555
-- Email: samlocochris@gmail.com
 - thank u all.
 
 <!---
